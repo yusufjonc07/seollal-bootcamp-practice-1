@@ -1,1 +1,1 @@
-# seollal-bootcamp-practice-1
+Denis is cool
